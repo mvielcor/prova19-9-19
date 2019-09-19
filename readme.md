@@ -1,2 +1,2 @@
 # Hola sóc Manel
-* i tu qui eres? *
+* i tu qui eres? 
